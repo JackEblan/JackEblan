@@ -1,2 +1,2 @@
 ## Hi, I’m Jack Eblan 👋
-Just a Southeast Asian guy.
+Making things simple.
