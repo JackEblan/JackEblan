@@ -1,3 +1,3 @@
-## Hi, I’m Jack Eblan, the future Gohan.
+## Hi, Einstein Blanco.
 
-Making things simple.
+Making things simple. I'm lazy curating my profile.
