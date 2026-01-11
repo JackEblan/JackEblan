@@ -1,3 +1,3 @@
-## Hi, Einstein Blanco.
+## Hi, I'm Einstein Blanco.
 
 Making things simple. I'm lazy curating my profile.
