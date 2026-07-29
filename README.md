@@ -1,1 +1,1 @@
-I hate this place and the AI slop.
+I'm no longer making FOSS for Android. Thank you for trying my projects.
