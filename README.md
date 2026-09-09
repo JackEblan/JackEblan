@@ -1,1 +1,1 @@
-I'm no longer making FOSS for Android. Thank you for trying my projects.
+The code is a mess and we need to clean them all.
